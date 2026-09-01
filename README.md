@@ -42,4 +42,4 @@
 
 ---
 
-📫 **Connect with me:** [LinkedIn](https://linkedin.com/in/faisal-mahmood-faz) | [Email](mr.mfaisalmahmood@gmail.com)
+📫 **Connect with me:** [LinkedIn](https://linkedin.com/in/faisal-mahmood-faz) | [Email](mailto:mr.mfaisalmahmood@gmail.com)
