@@ -42,4 +42,4 @@
 
 ---
 
-📫 **Connect with me:** [LinkedIn](https://linkedin.com/in/your-profile) | [Email](mailto:your-email@example.com)
+📫 **Connect with me:** [LinkedIn](https://linkedin.com/in/faisal-mahmood-faz) | [Email](mr.mfaisalmahmood@gmail.com)
