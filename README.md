@@ -1,4 +1,4 @@
-# Hi, I'm [Faisal Mahmood] ⚡ Electrical Power Systems Engineer
+# Hi, I'm Faisal Mahmood ⚡ Electrical Power Systems Engineer
 
 🎓 Electrical Engineering Student | Power Systems Simulation Specialist
 
